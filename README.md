@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mahachowdary02
-- 👀 I’m interested in learning trending technology  in software 
+- 👀 I’m interested in learning latest technical software development 
 - 🌱 I’m currently learning 3rd year  bachelor of technology  computer science 
 - 💞️ I’m looking to collaborate on.....
 - 📫 How to reach me 85002 66459 
